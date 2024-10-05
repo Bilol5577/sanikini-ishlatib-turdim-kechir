@@ -1,0 +1,1 @@
+# sanikini-ishlatib-turdim-kechir
